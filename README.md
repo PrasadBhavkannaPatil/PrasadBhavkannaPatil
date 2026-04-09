@@ -3,6 +3,8 @@
 - 🌱 I Completed my bachelor's degree in Computer Application field.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... my social media id -
+
+- 
                        prasadpatil0531@gmail.com
                        https://in.linkedin.com/in/prasad-bhavkanna-patil-9746942a1
 - 😄 Pronouns: ...
